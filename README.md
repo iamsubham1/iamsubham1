@@ -1,5 +1,5 @@
 # 💫 About Me:
-A computer science student who is enthusiatic about solving problems and creating web apps
+A HOMOSAPIEN WITH KEEN INTEREST IN TECHNOLOGY
 
 
 ## 🌐 Socials:
